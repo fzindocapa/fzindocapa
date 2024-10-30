@@ -1,16 +1,15 @@
-## Hi there 👋
+## oi
+eu sou filipe sou gordao sou legal e as vezes feliz
 
-<!--
-**fzindocapa/fzindocapa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+gosto de alguns jogos como warzone,dbd, ARK, god of war.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+trabalho com transporte na empresa rodobras 
+
+leite.filipe@escola.pr.gov.br
+
+![](https://media1.tenor.com/m/xjE0jJXWe-EAAAAC/dinheiro-deitado-na-grana.gif)
+
+![](https://media1.tenor.com/m/56MPKrWUTTsAAAAd/wtf-haha.gif)
+
+🙀🙀🙀🙀🙀🙀🙀🙀🙀🙀
